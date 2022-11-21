@@ -1,11 +1,9 @@
 ### Hi there, I'm David 👋
 
 
-- 🎉 I just graduated from Flatiron School!
 - 🤓 I’m currently learning everything.
 - 🌱 I’m looking to see how much I can grow and learn.
 - ⚡ Fun fact: I love to play games and repairing/building things.
-- 😅 I'm currently looking for a good series to watch, if you have anything on mind please let me know 😄
 
 ### Connect with me:
 
